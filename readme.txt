@@ -4,3 +4,11 @@ hers
 mine
 meaw 
 chua
+abebe 
+liyam
+berni
+dani
+huhu
+buna 
+tetu
+belu
